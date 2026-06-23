@@ -1,5 +1,5 @@
 # JohnnyJoeestar/Me!
-![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled9_20260624003252.png)
+![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled10_20260624003742.png)
 ![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled8_20260623202120.png)
 
 # PONYTOWNPARTYGNG ↓
