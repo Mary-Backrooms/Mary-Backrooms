@@ -9,3 +9,5 @@
 ![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/IMG_20260624_001538.jpg)
 
 I am the one with Rohan pony in this party gang!
+
+![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled11_20260624010935.png)
