@@ -1,6 +1,6 @@
 ###### 🩵
 𓆝 𓆟 𓆞 𓆝 𓆟𓆝
-｡𖦹°‧⋆˚࿔![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/Untitled8_20260623202120.png)
+｡𖦹°‧⋆˚࿔![Image Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/image-b16d-gradientmap.pro.png)
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆟𓆝 𓆟 𓆞࿔  ࿔  ࿔
 ![Gif Alt](https://github.com/JohnnyJoeestar/JohnnyJoeestar/blob/main/539296_593ee.gif)
 
